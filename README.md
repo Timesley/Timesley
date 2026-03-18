@@ -7,7 +7,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=5A0000&width=435&lines=Too+late%2C+too+late+to+love+you+again;I+hate+hate+hate+hate+hate+hate+hate;hate+hate+hate+hate+hate+hate+You.)](https://git.io/typing-svg)
 
-![image](https://f2.toyhou.se/file/f2-toyhou-se/images/116274894_7ng3mI3TchYGNrc.png)
+![image](https://miro.medium.com/v2/1*qJDoiMSC5bIbwdql5AB8fg.gif)
 
 
 
